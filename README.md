@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @mathieucoinmiles
+- 👀 I’m interested in pretty much anything
+- 🌱 I’m currently learning NFT & economics around the crypto environment
+- 💞️ I’m looking to collaborate on Web3 projects
+- 📫 How to reach me <mathieu@coinmiles.io> or <mathieuauclair@aol.com>
